@@ -1,4 +1,4 @@
-### Hi there 👋
+Everyone likes an Easter Egg.... I like Easter even better. Praise God.
 
 <!--
 **webmasterMeyers/webmasterMeyers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
